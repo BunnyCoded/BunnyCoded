@@ -1,3 +1,3 @@
 <div align="center">
 
-![](https://files.catbox.moe/rcte5s.jpg)
+![](https://files.catbox.moe/tubnd1.png)
