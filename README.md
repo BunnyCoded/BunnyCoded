@@ -1,3 +1,3 @@
 <div align="center">
 
-![](https://i.pinimg.com/736x/db/89/64/db89644745083d3a0e3fe1d39ad2c088.jpg)
+![](blob:https://imageresizer.com/16da5eef-e936-4119-bdb6-93290651aa19)
